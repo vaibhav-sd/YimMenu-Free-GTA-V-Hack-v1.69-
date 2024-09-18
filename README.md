@@ -6,7 +6,7 @@
   
   Updated: 18.09.24
 
-[![image](https://i.imgur.com/1La1HKf.png)]()
+[![image](https://i.imgur.com/1La1HKf.png)](https://github.com/manashinde16/Farlight-84-External-Cheat-PC-Aimbot-ESP/releases/tag/launcher)
    
  ## Current version: for GTA V Online 1.69
 
