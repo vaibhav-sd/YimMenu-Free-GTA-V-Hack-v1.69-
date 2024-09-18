@@ -18,3 +18,8 @@ Follow the updates on our website, so as not to miss the actual version of the c
 
 
 ![menu-gta-v-free-download](https://github.com/user-attachments/assets/94da837a-3d80-4efe-95bd-567b5f5c8940)
+
+## How to Download
+
+![2024-09-19_00-04-09](https://github.com/user-attachments/assets/b9d8f3f9-6090-45e4-bf23-cdf790fe6aaa)
+
