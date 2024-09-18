@@ -23,3 +23,6 @@ Follow the updates on our website, so as not to miss the actual version of the c
 
 ![2024-09-19_00-04-09](https://github.com/user-attachments/assets/b9d8f3f9-6090-45e4-bf23-cdf790fe6aaa)
 
+![2024-09-19_00-06-29](https://github.com/user-attachments/assets/0acaba78-3f60-4f8f-8512-f5c3be3efd29)
+
+
